@@ -1,5 +1,4 @@
-I may not claim to know everything, but I **understand the basics deeply** and I learn fast by building real projects.
-
+YOOOOOOOOO! What’s up, amigos? 👋 My name is Bezaneh Meskele (aka Beza). I’m a self-taught programmer! 💻 No formal education here—just me, some awesome online courses, and a ton of hands-on experience breaking (and fixing) things. 🚀 Let’s build something cool! ✨ i do things for fun like advance and complex things " 
 ---
 
 ## 🧠 My Skills & What I Can Do
